@@ -1,4 +1,5 @@
 👋 Hi, I’m Darren Kim, originally from Cambodia
+
 I completed my Master of Electrical Engineering (with Business) at the University of Melbourne, which increased my ability to critically examine technical 
 problem align with my business perspective including markets, assets, products, planning, procurement and developing engineering management strategies that 
 could be a team player to help building a better community.
