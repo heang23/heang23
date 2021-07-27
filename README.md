@@ -24,6 +24,6 @@ class.
 
 🌱 I’m alway up for environmental sustainability and innovative policies
 
-💞️ Open for all possible collaboration.
+💞️ Open for all possible collaborations.
 
 📫 Email: kimsengheang@gmail.com
