@@ -21,7 +21,7 @@ class.
 
 👀 I’m interested in Data and Engineering
 
-🌱 I’m alway up for environmental sustainable and innovative policies
+🌱 I’m alway up for environmental sustainability and innovative policies
 
 💞️ Open for all possible collaboration.
 
