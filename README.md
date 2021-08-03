@@ -20,7 +20,7 @@ I am responsible for handling customer’s complaints and documenting the techni
 Furthermore, my strong written skills and clear verbal skills contributed to me receiving a High Distinction for the final projects at university and bootcamp 
 class.
 
-👀 I’m interested in Data and Engineering
+👀 I’m interested in Data, Electrical and Electronic Engineering
 
 🌱 I’m alway up for environmental sustainability and innovative policies
 
